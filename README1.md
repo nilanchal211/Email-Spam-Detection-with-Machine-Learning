@@ -83,7 +83,7 @@ Let's keep our inboxes spam-free and our communications secure.
 
 ## Author
 
-- [Sandip Kumar Tripathy](https://www.linkedin.com/in/nilanchal-nahak-5b3a6a25a/)
+- [Nilanchal Nahak](https://www.linkedin.com/in/nilanchal-nahak-5b3a6a25a/)
 
 ---
 
